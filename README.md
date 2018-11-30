@@ -1,3 +1,3 @@
 ﻿# test
 テスト用リポジトリ
-daze
+daze yahoooooooooooooooooooooooooooooooooooooo
