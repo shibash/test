@@ -2,4 +2,4 @@
 テスト用リポジトリ
 daze yahoooooooooooooooooooooooooooooooooooooo
 agiergiubaeiubrgipbaeiubrguieapigubera
-asdasdasd
+asdasdasd ブランチテスト中だゾ～ぃ
